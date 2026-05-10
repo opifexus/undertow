@@ -1,0 +1,1 @@
+![[Pasted image 20240807183748.png]]![](app://330bde6936940192b95adf2da7104b3a56a6/C:/Users/opife/Documents/HeraldUndertow/Images/Pasted%20image%2020240404144033.png?1712266833461|400)
