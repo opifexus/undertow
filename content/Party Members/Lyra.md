@@ -1,9 +1,0 @@
-Lyra is one of the party members of the Rascal Razorfin, under captain [[Tyr'ryanah Floodvow ( Tyr )|Tyr]]. She is a Witch who uses powers given from her Hag [[Mother]].  
-
-![[Pasted image 20240404134120.png]]
-
-### Backstory
-
-Lyra's father was a powerful man who fell victim to a [[Mother|night hag]] that used his dreams to manipulate him into accepting a bargain. This bargain led to Lyra's birth, and came with many consequences, some of which even she is still unaware of. A part of their pact obligated her father to take care of her and be unable to bring her harm. Raised as the bastard child of a powerful noble who didn't want her catching too much attention, she spent a lot of her life as a shut in and buried herself in books, more interested in learning about the world than she was trying to partake in court. The night sky was always something that both drew and fascinated Lyra, so she'd for books on Astrology since she was young, unbeknownst to her why it was that such things drew her so strongly. She became proficient on the topic before she knew it, and one day her father decided he could not do this any longer. He told Lyra of the truth of her origins, of her mother's deception and hold over her father, and the way she wanted her to grow up to seek his power and take his place so she could have someone of influence there and use her daughter for her own gains. Lyra of course wanted nothing to do with her mother's plans. Her father told her that he was bound by their bargain to unable to harm the hag, but she, was not. He told her that if she was able to find and take down her nefarious mother, he'd give her the freedom to do whatever she wanted, and as someone who yearned for adventure and wanted away from the confinements of home, and wanted no part of her mother's horrible plans, she agreed.
-
-![[Pasted image 20240405125238.png]]

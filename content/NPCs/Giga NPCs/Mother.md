@@ -1,3 +1,0 @@
-The entity known as [[Mother]] is an Astral Hag, from beyond this realm. She works with the secret society of [[The Pathfinder Society]]. Obviously, she has her own interests at mind...
-
-![[Pasted image 20240404133829.png]]

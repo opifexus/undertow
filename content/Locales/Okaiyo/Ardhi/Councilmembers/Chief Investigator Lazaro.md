@@ -1,1 +1,0 @@
-Head of the Investigation on [[Payo]] , as well as the murder of the Cassalanters.

@@ -1,3 +1,0 @@
-Another major faction in Kamoali'i is the Ka Lae, a group of powerful and influential land-owners and business leaders. The Ka Lae are based in the city of Hana on the western island of Kamoali'i, and are infamous for their wealth and their connections to the government. The Ka Lae are driven by a strong sense of ambition and a desire for power, and are willing to do whatever it takes to achieve their goals. However, they are also known for their philanthropy and their commitment to the well-being of their community.
-![[Pasted image 20240807192651.png]]
-![[Pasted image 20240404143112.png]]![[Pasted image 20240404143242.png]]![[Pasted image 20240404143250.png]]![[Pasted image 20240404143310.png]]

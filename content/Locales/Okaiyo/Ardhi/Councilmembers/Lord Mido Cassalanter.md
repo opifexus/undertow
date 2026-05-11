@@ -1,1 +1,0 @@
-Lord Mido Cassalanter was one of the councilmembers of the Council of [[Ardhi]].  

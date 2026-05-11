@@ -1,1 +1,0 @@
-Renn(et) Boffin: Owns a toy shop and makes illegal weapons on the side. Positive contact: pastor at church that sell toys to. Rival: Guys who sell weapons to that hustle him and blackmail him, threatening to reveal business.

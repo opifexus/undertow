@@ -1,1 +1,0 @@
-Set up ritual, Lodrom watches. Some notes and details about the [[Mavishan Crystals Lore]]. [[Stede Bonnet]] is introduced. Guidance, protect, safe passage to our ends, safety for family/adventure, friendship/community. Gave blood. Ship is alive.
