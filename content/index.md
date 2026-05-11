@@ -1,3 +1,3 @@
 # Undertow of the Herald
 
-Hello users
+Hello users, welcome to lore

@@ -1,3 +1,3 @@
 The Pathfinder Society is a globe-spanning organization based out of Absalom, the City at the Center of the World. The membership consists primarily of Pathfinders, adventurers who travel throughout Golarion—usually inconspicuously—and explore, delve, and otherwise experience the lesser-seen parts of the world. They send journals documenting their travels back to their venture-captains, who also assigns them new missions and suggests new places to explore. The most exciting and illuminating of these journals are compiled in the Pathfinder Chronicles, an ongoing series of books that collect the history and mystery of Golarion for its membership and the general public.
 
-They generally worship [Abadar](https://2e.aonprd.com/Deities.aspx?ID=277) (Master of the First Vault), who took part in creating the [[Praetereus]]. 
+They generally worship [Abadar](https://2e.aonprd.com/Deities.aspx?ID=277) (Master of the First Vault), who took part in creating the REDACTED.

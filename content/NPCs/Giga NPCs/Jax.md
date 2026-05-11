@@ -1,1 +1,1 @@
-test additional information with [[Lord Herschel]] and [[Xavier Markov]] and [[Mwenye]] dudes.
+Dude with [[Lord Herschel]] and [[Xavier Markov]] and [[Mwenye]] dudes.

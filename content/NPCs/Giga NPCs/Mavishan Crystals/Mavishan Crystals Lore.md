@@ -4,7 +4,4 @@ Over the course of a one-hour ritual aboard a ship while it is in motion, the Ma
   
 Bard tales often tell of the great feats accomplished by ships with Ship-Spirits. One legend tells of the ghostly ship "The Way of the Winds," which sailed through a raging storm and emerged unscathed, thanks to the guidance of its Ship-Spirit. Another legend speaks of the "Eternal Voyage," a ship that sailed off the edge of the world and returned with tales of strange and wondrous lands beyond. These legends have captured the imaginations of sailors and land-dwellers alike, and many dream of one day sailing on a ship with a Mavishan Crystal of their own.
 
-#### Hidden Info
-The idea of the Mavishan Crystals was intuited by [[The Man Lost To Time]]. As part of his appeal to [[Alassabouros]], the crystals were invented as a way to "farm souls" for Deities, as eventually, due to consumption, famine, or other man-made disasters, humanoids would stop making souls themselves. 
-
-![](https://lh7-us.googleusercontent.com/Y2ZTW5QTflzM2UP3s18fq2u4yqK6g_0HCg9K0dSJFKoPu9mdsJKkhv_9q5LSMBk8XfWcQp-mwb0JvuSmDx2QO4-VOoTRJd58c60RsGmpMD5jsIPYOvOuaGl6id8iT3cyBdSqLkcea57-NFzjeKvY_dI)
+####![](https://lh7-us.googleusercontent.com/Y2ZTW5QTflzM2UP3s18fq2u4yqK6g_0HCg9K0dSJFKoPu9mdsJKkhv_9q5LSMBk8XfWcQp-mwb0JvuSmDx2QO4-VOoTRJd58c60RsGmpMD5jsIPYOvOuaGl6id8iT3cyBdSqLkcea57-NFzjeKvY_dI)
