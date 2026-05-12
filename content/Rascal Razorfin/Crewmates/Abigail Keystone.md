@@ -1,0 +1,1 @@
+Abigail is a dwarven psionic that works for [[The Pathfinder Society|the Pathfinder Society]]. She regularly requests the party to allow her access into their minds to view the exciting adventures that they have experienced. Abigail was distraught to learn that the Society was complicit in the death of dozens of citizens as the Cataclysm was cast at the Wedding.

@@ -1,0 +1,1 @@
+Fei Sheng is a kitsune investigator that takes the form of a tiefling. They are a member of the Royal Court of [[Huangse]] and are currently defecting. [[The Pathfinder Society]] set the party to deliver them to Huangse, which the party refused after learning Fei Sheng's disinterest in returning.

@@ -1,0 +1,1 @@
+Lodrom is a dwarven barbarian approximately 210 years old. He always carries his clan dagger. He has worked with [[Sergio Alhambra de la Ossa|Sergio]] and [[Araya]] in the past. 
